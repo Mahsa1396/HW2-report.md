@@ -21,11 +21,11 @@ Q2)
 [Thamarai Selvi Somasundaram linkedin account](https://www.linkedin.com/in/thamarai-selvi-somasundaram-10100731/?originalSubdomain=in)
 
 
-[Przemysław Stpiczyński](https://scholar.google.co.uk/citations?user=Rc_5r80AAAAJ&hl=en&oi=sra)
-[Przemysław Stpiczyński](http://orcid.org/0000-0001-8661-414X)
+[Przemysław Stpiczyński Google Scholar](https://scholar.google.co.uk/citations?user=Rc_5r80AAAAJ&hl=en&oi=sra)
+[Przemysław Stpiczyński Twitter](http://orcid.org/0000-0001-8661-414X)
 
-[Dominik Szałkowski](https://scholar.google.co.uk/citations?user=CmgoZj4AAAAJ&hl=en&oi=sra)
-[Dominik Szałkowski](https://twitter.com/dominisz_pl)
+[Dominik Szałkowski Google Scholar Account](https://scholar.google.co.uk/citations?user=CmgoZj4AAAAJ&hl=en&oi=sra)
+[Dominik Szałkowski Twitter Account](https://twitter.com/dominisz_pl)
 
 [Third Person](https://scholar.google.com/citations?hl=en&user=z4We1-UAAAAJ&view_op=list_works&citft=1&email_for_op=mshar004%40odu.edu&gmla=AJsN-F4Iw3lYV2JM8HGoo7CPreMDxMvrEAvyo7hp8Nr7_ul3k1NkViSgV8NihtlML_yo8wYr-ctYiwKPqbVGGsc7Wr-od3wpW2jnqVVAecB2opIS14ADb_hpWu9GCPTrCe8P4ZHyDQCH_BsixnWY6IETco3uo9W-vLzWP4GUQzYWxSBr40i0uuJnH8F-DJzidbTgTbv_9OIPqgaAdbaOMInLP98tgsqsJzL76ZGd5s2XweTJwyqGBcE)
 
