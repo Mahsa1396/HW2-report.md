@@ -28,9 +28,10 @@ Q2)
 [Dominik Szałkowski Twitter Account](https://twitter.com/dominisz_pl)
 [Dominik Szałkowski Linkedin Account](https://www.linkedin.com/in/dominisz/?originalSubdomain=pl)
 
-[Third Person](https://scholar.google.com/citations?hl=en&user=z4We1-UAAAAJ&view_op=list_works&citft=1&email_for_op=mshar004%40odu.edu&gmla=AJsN-F4Iw3lYV2JM8HGoo7CPreMDxMvrEAvyo7hp8Nr7_ul3k1NkViSgV8NihtlML_yo8wYr-ctYiwKPqbVGGsc7Wr-od3wpW2jnqVVAecB2opIS14ADb_hpWu9GCPTrCe8P4ZHyDQCH_BsixnWY6IETco3uo9W-vLzWP4GUQzYWxSBr40i0uuJnH8F-DJzidbTgTbv_9OIPqgaAdbaOMInLP98tgsqsJzL76ZGd5s2XweTJwyqGBcE)
 
-[Fourth person](https://scholar.google.com/citations?hl=en&user=71InPWYAAAAJ&view_op=list_works&citft=1&email_for_op=mshar004%40odu.edu&gmla=AJsN-F6oaPEoB43VNzwjTSxIEGb-as4bz3nr7SwMkgvA1hVCBK1oT-olfM2k2FFh-TWxirazoguwVgpMu5LPfeQ5uMhZM9as_0vDxliHrwvNcThxyiPXxzK6E4PPnPXX_1sFdkB33bIdWv6Iw7zdjnOJj7Ibf31rCz8RPammfpYrP-Xbg0nf29tdxSl8z4ojJDYANrfYPznMZvCvHKgbqlWOSfIXd6qpDOf84qXFwXcwPsUAozhN5qQ)
+[Amin Tayyebi Google Scholar](https://scholar.google.com/citations?hl=en&user=71InPWYAAAAJ&view_op=list_works&citft=1&email_for_op=mshar004%40odu.edu&gmla=AJsN-F6oaPEoB43VNzwjTSxIEGb-as4bz3nr7SwMkgvA1hVCBK1oT-olfM2k2FFh-TWxirazoguwVgpMu5LPfeQ5uMhZM9as_0vDxliHrwvNcThxyiPXxzK6E4PPnPXX_1sFdkB33bIdWv6Iw7zdjnOJj7Ibf31rCz8RPammfpYrP-Xbg0nf29tdxSl8z4ojJDYANrfYPznMZvCvHKgbqlWOSfIXd6qpDOf84qXFwXcwPsUAozhN5qQ)
+[Amin Tayyebi Linkedin](https://www.linkedin.com/in/amintayyebi/)
+[Amin Tayyebi Twitter](https://twitter.com/amin_tayyebi)
 
 [fifth person](https://scholar.google.com/citations?hl=en&user=96QTY3cAAAAJ&view_op=list_works&citft=1&email_for_op=mshar004%40odu.edu&gmla=AJsN-F4qenok6zsWz-ljfveJJ4ABTf8vWMXQ4_fOD1KxM4QxYuvBxHuA59CumunZxglF2VVk8AcBU8F2CiSEVzRNyvccJQKSxYIoNxV7L12tyYcYxlgxOlivYSOFNYPEFsH37bufSup32UiIYNEZWEYo1_5VxQIJYAGAPdN1jpTl_VCbLT9q_kM0Md1MgredwMwmc1kZv7PYc4hs8eE12NM91IMs8WX62WR1tPi8usOb80pvfx8AKiM)
 
