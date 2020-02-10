@@ -26,6 +26,7 @@ Q2)
 
 [Dominik Szałkowski Google Scholar Account](https://scholar.google.co.uk/citations?user=CmgoZj4AAAAJ&hl=en&oi=sra)
 [Dominik Szałkowski Twitter Account](https://twitter.com/dominisz_pl)
+[Dominik Szałkowski Linkedin Account](https://www.linkedin.com/in/dominisz/?originalSubdomain=pl)
 
 [Third Person](https://scholar.google.com/citations?hl=en&user=z4We1-UAAAAJ&view_op=list_works&citft=1&email_for_op=mshar004%40odu.edu&gmla=AJsN-F4Iw3lYV2JM8HGoo7CPreMDxMvrEAvyo7hp8Nr7_ul3k1NkViSgV8NihtlML_yo8wYr-ctYiwKPqbVGGsc7Wr-od3wpW2jnqVVAecB2opIS14ADb_hpWu9GCPTrCe8P4ZHyDQCH_BsixnWY6IETco3uo9W-vLzWP4GUQzYWxSBr40i0uuJnH8F-DJzidbTgTbv_9OIPqgaAdbaOMInLP98tgsqsJzL76ZGd5s2XweTJwyqGBcE)
 
