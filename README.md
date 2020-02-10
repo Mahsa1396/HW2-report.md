@@ -21,7 +21,11 @@ Q2)
 [Thamarai Selvi Somasundaram linkedin account](https://www.linkedin.com/in/thamarai-selvi-somasundaram-10100731/?originalSubdomain=in)
 
 
-[Second person](https://scholar.google.com/citations?hl=en&user=OM8HCRsAAAAJ&view_op=list_works&citft=1&email_for_op=mshar004%40odu.edu&gmla=AJsN-F62-hm-pUdb8gZkX4Wibx6bE4kKa8G5GEZEFCy_kr3DzmrLP2HL6E4NjTVDLbdWZ9FGgxe9VWpy4SoUFOyK0D-KOflch2I2-O1fRqn6VEaTBojPtUsBrPx7c68hRTkFUD6yIEw1776qipjBM-RI1v6JZpJpeO97POpN9OmYnC75ZHiaWpA5ypniqL1XUFJsSiCdZSn8zM9VVhr_3djlyQgA8qUjBUgEEs9Jp2A8ZVlkV77UXps)
+[Przemysław Stpiczyński](https://scholar.google.co.uk/citations?user=Rc_5r80AAAAJ&hl=en&oi=sra)
+[Przemysław Stpiczyński](http://orcid.org/0000-0001-8661-414X)
+
+[Dominik Szałkowski](https://scholar.google.co.uk/citations?user=CmgoZj4AAAAJ&hl=en&oi=sra)
+[Dominik Szałkowski](https://twitter.com/dominisz_pl)
 
 [Third Person](https://scholar.google.com/citations?hl=en&user=z4We1-UAAAAJ&view_op=list_works&citft=1&email_for_op=mshar004%40odu.edu&gmla=AJsN-F4Iw3lYV2JM8HGoo7CPreMDxMvrEAvyo7hp8Nr7_ul3k1NkViSgV8NihtlML_yo8wYr-ctYiwKPqbVGGsc7Wr-od3wpW2jnqVVAecB2opIS14ADb_hpWu9GCPTrCe8P4ZHyDQCH_BsixnWY6IETco3uo9W-vLzWP4GUQzYWxSBr40i0uuJnH8F-DJzidbTgTbv_9OIPqgaAdbaOMInLP98tgsqsJzL76ZGd5s2XweTJwyqGBcE)
 
