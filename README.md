@@ -6,7 +6,7 @@
 
 [Google Scholar Account](https://scholar.google.com/scholar?scilib=1&hl=en)
 
-[ORCID Account](https://orcid.org/my-orcid)
+[ORCID Account](https://orcid.org/0000-0002-7659-5915)
 
 [Slide Share account](https://www.linkedin.com/feed/?trk=slideshare-signup)
 
