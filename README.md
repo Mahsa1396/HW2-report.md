@@ -16,7 +16,9 @@
 
 Q2)
 
-[first person I followed outside of odu, in my field which is hpc:](https://scholar.google.com/citations?hl=en&user=ijVw8xQAAAAJ&view_op=list_works&citft=1&email_for_op=mshar004%40odu.edu&gmla=AJsN-F4gF1gE14cFnQHgJ5ErdAH01CUspX723RrgwSz0Mu6KKXf6pNBvgePL5xt8T_Nbcew5GcuKhkkt24te2PU8mWfztIdqNwFPd3hIl62xxPOPksxpnj_I3PQvEw0n-jePqsQZxkag0EMwb9GwcwlR_y2QgOqydZpPO5YWwHOdxjFpq_HHUvqQIXL-c5UDJsz2uu8bPZ-7Bp5y-xWMGGbF13JLTSsgVQXK9T18Mi2p5EjjwhBfXpA)
+[first person I followed outside of odu, in my field which is hpc: Thamarai Selvi Somasundaram](https://scholar.google.com/citations?hl=en&user=ijVw8xQAAAAJ&view_op=list_works&citft=1&email_for_op=mshar004%40odu.edu&gmla=AJsN-F4gF1gE14cFnQHgJ5ErdAH01CUspX723RrgwSz0Mu6KKXf6pNBvgePL5xt8T_Nbcew5GcuKhkkt24te2PU8mWfztIdqNwFPd3hIl62xxPOPksxpnj_I3PQvEw0n-jePqsQZxkag0EMwb9GwcwlR_y2QgOqydZpPO5YWwHOdxjFpq_HHUvqQIXL-c5UDJsz2uu8bPZ-7Bp5y-xWMGGbF13JLTSsgVQXK9T18Mi2p5EjjwhBfXpA)
+[Thamarai Selvi Somasundaram twitter account](https://twitter.com/ThamaraiSelviS4)
+
 
 [Second person](https://scholar.google.com/citations?hl=en&user=OM8HCRsAAAAJ&view_op=list_works&citft=1&email_for_op=mshar004%40odu.edu&gmla=AJsN-F62-hm-pUdb8gZkX4Wibx6bE4kKa8G5GEZEFCy_kr3DzmrLP2HL6E4NjTVDLbdWZ9FGgxe9VWpy4SoUFOyK0D-KOflch2I2-O1fRqn6VEaTBojPtUsBrPx7c68hRTkFUD6yIEw1776qipjBM-RI1v6JZpJpeO97POpN9OmYnC75ZHiaWpA5ypniqL1XUFJsSiCdZSn8zM9VVhr_3djlyQgA8qUjBUgEEs9Jp2A8ZVlkV77UXps)
 
